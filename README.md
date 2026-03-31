@@ -19,6 +19,7 @@ CD5AHFKLNUCVSBKSAJHWV6WKJDRWWHNBV3AUIFOI3CLWSXWXSWS3R7OE
 ---
 
 ### 📸 Deployment Proof
+<img width="1541" height="796" alt="image" src="https://github.com/user-attachments/assets/438271eb-2f1b-4fd3-9645-2ad8470a2341" />
 
 ---
 
